@@ -41,7 +41,7 @@ By using our bot, you hereby consent to our Privacy Policy and agree to its term
 
 ### Updates
 
-This Privacy Policy was last updated on **\[DD/MM/YYYY]**. If there are any updates, amendments, or changes to our Privacy Policy, those changes will be prominently posted here.
+This Privacy Policy was last updated on **\31/05/2025**. If there are any updates, amendments, or changes to our Privacy Policy, those changes will be prominently posted here.
 
 ---
 
